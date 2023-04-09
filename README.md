@@ -5,3 +5,4 @@ www.bing.com
 www.google.com
 
 www.e-hentai.org
+www.hxcy.moe
