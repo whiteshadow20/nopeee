@@ -10,3 +10,4 @@ www.nhentai.com
 www.qiman59.com
 www.hxcy.moe/388553.html
 www.navacg.net
+www.ci-en.dlsite.com
