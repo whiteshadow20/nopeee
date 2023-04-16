@@ -8,3 +8,5 @@ www.e-hentai.org
 www.hxcy.moe
 www.nhentai.com
 www.qiman59.com
+www.hxcy.moe/388553.html
+www.navacg.net
