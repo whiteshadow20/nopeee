@@ -12,4 +12,4 @@ www.hxcy.moe/388553.html
 www.navacg.net
 www.ci-en.dlsite.com
 www.hmoegirl.com
-www.e-hentai.org/g/2532232/2971853f68
+https://www.wnacg.com/albums-index-tag-%E6%A9%8B%E6%9D%91%E9%9D%92%E6%A8%B9.html
